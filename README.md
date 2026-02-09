@@ -1,2 +1,2 @@
 # LorenaChavezMero.github.io
-Mi perfil profesioal
+Mi perfil profesional
